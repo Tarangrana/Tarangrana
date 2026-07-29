@@ -1,4 +1,4 @@
-# Hi 👋 I'm Tarang
+# Hi I'm Tarang
 
 I love Pokémon.
 
